@@ -1,1 +1,0 @@
-# Kisan-Mirta-AI
